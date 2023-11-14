@@ -1,0 +1,3 @@
+- Hi, I’m @Leexxfelix ❤❤❤❤❤❤
+- I'm part of a dance group at my school ❤❤❤❤❤
+- I love reading mangá and watching dramas ❤❤❤❤❤❤❤
